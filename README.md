@@ -15,7 +15,15 @@ Pictures:
 
 
     Nashville:
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.loveexploring.com%2Fguides%2F90064%2Fexplore-nashville-the-top-things-to-do-where-to-stay-what-to-eat&psig=AOvVaw3M2o0rFCdhq1Nij87BnqPs&ust=1650456395010000&source=images&cd=vfe&ved=0CAoQjhxqFwoTCLDl9KyLoPcCFQAAAAAdAAAAABAO
 
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.triphobo.com%2Fplaces%2Fnashville-united-states%2Fryman-auditorium&psig=AOvVaw04u2_uGE5uE9ue3Rkd6rPU&ust=1650456573627000&source=images&cd=vfe&ved=0CAoQjhxqFwoTCMiH34KMoPcCFQAAAAAdAAAAABAP
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.grunge.com%2F655057%2Fhow-accurate-is-nashvilles-parthenon-replica%2F&psig=AOvVaw05Gejl3njJpltFnruvPVU5&ust=1650456658367000&source=images&cd=vfe&ved=0CAoQjhxqFwoTCNDczfKMoPcCFQAAAAAdAAAAABAD
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwherequ.com%2Fattraction%2Frestaurant-reviews-monells-5431688-nashville-tennessee&psig=AOvVaw2wt_ymUzft22NOiAQvvRxs&ust=1650456899313000&source=images&cd=vfe&ved=0CAoQjhxqFwoTCLjcn56NoPcCFQAAAAAdAAAAABAZ
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fmzarch.com%2Fwork%2Fthe-catbird-seat&psig=AOvVaw3bNbj9K4XjiGL9f-1B6Xrm&ust=1650457049611000&source=images&cd=vfe&ved=0CAoQjhxqFwoTCMjkgueNoPcCFQAAAAAdAAAAABAU
 
     Virginia Beach:
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.facebook.com%2Fchicksoysterbar%2F&psig=AOvVaw3xBfBsRgt-F7l2e1Py134q&ust=1650383329096000&source=images&cd=vfe&ved=0CA0QjhxqFwoTCKDpt5j7nfcCFQAAAAAdAAAAABAc
