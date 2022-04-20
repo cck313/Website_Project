@@ -11,9 +11,6 @@ Various Bootstrap example codes
 
 Pictures:
 
-    Index Page:
-
-
     Nashville:
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.loveexploring.com%2Fguides%2F90064%2Fexplore-nashville-the-top-things-to-do-where-to-stay-what-to-eat&psig=AOvVaw3M2o0rFCdhq1Nij87BnqPs&ust=1650456395010000&source=images&cd=vfe&ved=0CAoQjhxqFwoTCLDl9KyLoPcCFQAAAAAdAAAAABAO
 
